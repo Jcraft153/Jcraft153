@@ -1,10 +1,15 @@
 I'm Jcraft153 👋
 
 ☆ Pronouns: They/Them/He/Him. ☆
-☆ 90s kid from Southampton in the UK. Computing & IT Grad working in Tech Support for ERP.  
+
+☆ 90s kid from Southampton in the UK. Computing & IT Grad working in Tech Support for ERP.  ☆
+
 ☆ Furry, Gamer, Pride Volunteer ☆
+
 ☆ Neurodivergant (AS-Type/Aspergers, Dyslexia) go easy on me ;) ☆
+
 ☆ Corrupted protogen PFP @ookpassant ☆
+
 ☆ Banner/All other art @VJArt_ ☆
 
 
